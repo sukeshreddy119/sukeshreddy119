@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ Sukesh Reddy Ainala 
-- 👀 I’m interested in .. development
-- 🌱 I’m currently learning new thinbgs 
+- 👀 I’m interested in development
+- 🌱 I’m currently learning new things 
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me .. by mail- sukeshreddy119@gmail.com
 - 😄 Pronouns: Sukesh Reddy 
